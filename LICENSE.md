@@ -1,4 +1,4 @@
-
+vip Script for brookhaven rp offers the most advanced brookhaven rp Script, with custom skins and one-hit kill. Perfect for dominating any match.
 
 
 
